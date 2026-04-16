@@ -1,35 +1,53 @@
-# 🌟 Welcome to Indre Asada on GitHub
+# Indre Asada
 
-**Indre Asada** is an online platform dedicated to enhancing the **mental, emotional, and physical well-being** of Lithuanian speakers worldwide and beyond. We specialize in holistic healing through self-awareness, energy work, meditation, and trauma resolution.
+**Indre Asada** is an online platform for Lithuanian speakers worldwide, focused on deep inner transformation through work with the internal system that shapes a person’s life.
 
-Our mission is to guide individuals toward inner peace, healing, and conscious living — using deep psychosomatic understanding and spiritual tools rooted in both ancient wisdom and modern insights.
+This work is not built on surface-level advice, motivational coaching, or generic spiritual content. It is based on helping people understand and reorganize the deeper internal structures behind recurring life patterns, emotional tension, relationship dynamics, self-worth struggles, control, burnout, and the loss of inner direction.
 
----
+Our approach combines:
+- subconscious pattern recognition
+- nervous system awareness
+- emotional memory and survival responses
+- psychosomatic insight
+- guided inner work and structured transformation processes
 
-## ✨ What We Do
+## What We Do
 
-- 🧘‍♀️ Guided Meditations & ThetaHealing™ Sessions  
-- 🌿 Mind-Body Healing & Trauma Integration  
-- 💫 Courses on Emotional Awareness, Energy Work, and Self-Mastery  
-- ❤️ Relationship & Conscious Life Mentoring  
-- 🌐 Live Webinars, On-Demand Programs, and 1:1 Sessions  
-- 🌍 Support for Lithuanian speakers globally, now expanding into English
+- Guided meditations
+- ThetaHealing-based inner work
+- Online courses and transformational programs
+- Live webinars and deeper learning experiences
+- Mentoring and support for people ready to go beyond insight into real internal change
 
----
+## What Makes This Work Different
 
-## 💖 Our Vision
+We do not focus only on symptoms.
 
-> A conscious world where every soul is healed, whole, and free — living with unconditional love and co-creating a world of harmony within and around.
+We work with the internal system from which reactions, choices, body states, and repeated life results emerge.
 
----
+Because real change does not happen only when a person understands more.  
+Real change begins when the internal system itself starts to shift.
 
-## 🔗 Learn More & Start Your Journey
+## Our Focus
 
-Visit our official website to explore our courses, meditations, and mentoring programs:
+Our content and programs explore themes such as:
+- recurring emotional and relationship patterns
+- nervous system tension and inner instability
+- subconscious programs formed through life experience
+- childhood and generational imprints
+- self-worth, identity, and inner safety
+- the deeper root behind outer life repetition
 
-👉 **[www.indreasada.com](https://www.indreasada.com)**
+## Vision
 
----
+A more conscious world, where people live with greater inner clarity, responsibility, and harmony with themselves, others, and life.
 
-Thank you for being here.  
-May your journey inward lead to transformation outward. 🌿
+## Mission
+
+To help people understand the deeper causes of their inner and outer struggles, release the patterns that keep repeating, restore inner stability, and build a more conscious, meaningful life.
+
+## Learn More
+
+Explore the platform, courses, and resources here:
+
+[www.indreasada.com](https://www.indreasada.com)
