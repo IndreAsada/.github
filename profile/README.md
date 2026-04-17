@@ -1,15 +1,10 @@
 # Indre Asada
 
-**Indre Asada** is an online platform for Lithuanian speakers worldwide, focused on deep inner transformation through work with the internal system that shapes a person’s life.
+**Indre Asada** is an online platform focused on deep inner transformation, emotional clarity, and the reorganization of the internal system that shapes a person’s life.
 
-This work is not built on surface-level advice, motivational coaching, or generic spiritual content. It is based on helping people understand and reorganize the deeper internal structures behind recurring life patterns, emotional tension, relationship dynamics, self-worth struggles, control, burnout, and the loss of inner direction.
+This work is not based on surface-level advice, motivational coaching, or generic spiritual content. It is built around helping people understand and transform the deeper internal structures behind recurring life patterns, emotional tension, relationship dynamics, self-worth struggles, control, burnout, and the loss of inner direction.
 
-Our approach combines:
-- subconscious pattern recognition
-- nervous system awareness
-- emotional memory and survival responses
-- psychosomatic insight
-- guided inner work and structured transformation processes
+The platform offers content and transformational work in **Lithuanian, English, and Russian**.
 
 ## What We Do
 
@@ -17,7 +12,7 @@ Our approach combines:
 - ThetaHealing-based inner work
 - Online courses and transformational programs
 - Live webinars and deeper learning experiences
-- Mentoring and support for people ready to go beyond insight into real internal change
+- Mentoring and support for people ready to move beyond insight into real internal change
 
 ## What Makes This Work Different
 
